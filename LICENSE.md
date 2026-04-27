@@ -1,4 +1,4 @@
-
+Experience spin a soccer card like never before with stealth Script for spin a soccer card, the #1 Script. Includes auto-upgrade and anti-ban for
 
 
 
